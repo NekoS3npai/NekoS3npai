@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @NekoS3npai
+- I am starting to learn more about coding, plain and simple.
